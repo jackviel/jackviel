@@ -1,1 +1,1 @@
-Incoming FBU Engineering Intern @ Meta | CS @ UCF
+Incoming Meta University Engineering Intern | CS @ UCF
