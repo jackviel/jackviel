@@ -1,1 +1,1 @@
-Incoming Meta University Engineering Intern | CS @ UCF
+Meta University Engineering Intern | CS @ UCF
