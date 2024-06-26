@@ -1,1 +1,1 @@
-Meta University Engineering Intern | CS @ UCF
+Hey, https://www.linkedin.com/in/jackviel/ .
